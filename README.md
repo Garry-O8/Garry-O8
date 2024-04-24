@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on garrygilmour389ATGMAIL
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: XMR is the best
+- ⚡ Fun fact: XMR is real BTC
 
 <!---
 Garry-O8/Garry-O8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
